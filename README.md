@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Divyesh Kaklotar
-**BCA Honours Student || Aspiring Cloud & DevOps Engineer from India**
+**BCA Honours Student || from VNSGU Surat, Gujarat**
 
 Email Me 👉 ✉️ **pentonick09@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
